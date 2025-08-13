@@ -25,6 +25,7 @@ A research project exploring how marital relationships influence dietary behavio
 
 ## ✨ Fun Facts
 
+
 - I love blending creativity (especially fashion!) with analytical thinking.
 - I’m happiest when teaching others and helping them grow.
 

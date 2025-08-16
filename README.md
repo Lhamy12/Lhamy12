@@ -1,6 +1,6 @@
 # Hi there, I'm Lhamy12 👋
 
-### 👩‍🎓 Student | 📊 Data Analysis Enthusiast | 💡 Knowledge Sharer | 👗 Fashion Lover
+###📊 Data Analysis Enthusiast | 💡 Knowledge Sharer | 👗 Fashion Lover
 
 ---
 
